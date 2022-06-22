@@ -1,4 +1,5 @@
 What are the types of commercial security systems required for a business? 
+
 It is imperative these days to secure your business and its valuables from intruders. To do so, you need to make informed decisions about choosing the right type of business security system that not only prevents encroachments but also halts all kinds of intrusions. Being aware of different kinds of commercial security systems could also help you pick the best option for your business.  
 Read on to find more about the different kinds of security systems for industries that are prevalent in the market. 
 Fire Alarm Systems 
